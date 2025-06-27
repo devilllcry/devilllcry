@@ -3,17 +3,15 @@
 
 </p>
 <p align="center">
-19 | punkish/scemo dude | he/they <br/>
-
-</p>
-<p align="center">
-local goblin<br/>
-</p>
-<p align="center">
+19 \ punkish scemo dude \ he/they <br/>
+─ ⋆ ⋅ ♰ ⋅ ⋆ ─<br/>
 usually on pony.town w/ friends<br/>
+i only friend ppl around my age<br/>  
+─ ⋆ ⋅ ♰ ⋅ ⋆ ─<br/>
+don't int if you're under 16 <br/>
+read my straw.page for for info
 </p>
-<p align="center">
-i don't friend very young/old ppl <br/>
+
 
 <p align="center">
 <img width="200" src="https://github.com/user-attachments/assets/6015226d-5485-4522-909d-ce4e0d7c6710" alt="dmc nero">
