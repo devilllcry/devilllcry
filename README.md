@@ -4,14 +4,22 @@
 </p>
 <p align="center">
 19 \ punkish scemo dude \ he/they <br/>
+
+</p>
+<p align="center">
 ─ ⋆ ⋅ ♰ ⋅ ⋆ ─<br/>
+</p>
+<p align="center">
 usually on pony.town w/ friends<br/>
 i only friend ppl around my age<br/>  
+</p>
+<p align="center">
 ─ ⋆ ⋅ ♰ ⋅ ⋆ ─<br/>
+</p>
+<p align="center">
 don't int if you're under 16 <br/>
 read my straw.page for for info
 </p>
-
 
 <p align="center">
 <img width="200" src="https://github.com/user-attachments/assets/6015226d-5485-4522-909d-ce4e0d7c6710" alt="dmc nero">
