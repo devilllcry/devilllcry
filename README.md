@@ -3,7 +3,7 @@
 
 </p>
 <p align="center">
-19 \ punkish scemo dude \ he/they <br/>
+19 \ punkish scemo dude \ he/him <br/>
 
 </p>
 <p align="center">
@@ -18,7 +18,6 @@ i only friend ppl around my age<br/>
 </p>
 <p align="center">
 don't int if you're under 16 <br/>
-read my straw.page for for info
 </p>
 
 <p align="center">
