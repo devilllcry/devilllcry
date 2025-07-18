@@ -1,6 +1,4 @@
 <p align=center>
-<img width="550" alt="image" src="https://github.com/user-attachments/assets/9882412b-68d8-4cfe-819e-0fcf7d4457bb" />
-<br align=center>
      
 <br align=center>
  $${\color{cyan}       ﹒    @neromaycry  ﹕♰}$$
@@ -25,7 +23,4 @@
 
 <br align=center>
 <sub/>◟♯ . / idm interactions, just don't be weird. i won't friend minors . 
-
-<br align=center>
-<img width="550" alt="image" src="https://github.com/user-attachments/assets/411a8c60-cc70-47c3-90ad-09d14ae6edf2" />
                                                                         
