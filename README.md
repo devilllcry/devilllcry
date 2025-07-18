@@ -3,7 +3,7 @@
 <br align=center>
  $${\color{#98A9E2}       ﹒    @neromaycry  ﹕♰}$$
 <br align=center>
-﹟    artist  ·  gamer  ·  writer   ㅤ           ⸝⸝   ㅤ         ﹟    19yo   ㅤ         ⸝⸝   ㅤ         ﹟    he  ·  him 
+﹟    artist  ·  gamer  ·  writer   ㅤ           ⸝⸝   ㅤ         ﹟    19yo   ㅤ         ⸝⸝   ㅤ         ﹟    he  ﾉ  him 
 <br align=center>
 <img width="350" alt="image" src="https://github.com/user-attachments/assets/3ba889e1-544e-439d-9d5d-c61cdf8e03fd" />
 
