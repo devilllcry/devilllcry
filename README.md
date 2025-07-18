@@ -20,5 +20,3 @@
 
 <br align=center>
 ◟♯ . / idm interactions, just don't be weird. i won't friend minors . 
-                                                                        
-<img width="100" src="https://komarev.com/ghpvc/?username=devilllcry&color=#98A9E2" alt="view counter">
