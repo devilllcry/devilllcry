@@ -11,9 +11,9 @@
 ⠀♰⠀   𓈒  ⠀only friend ppl that are awesome sauce⠀ ﾉ⠀ read rentry for more          ⸸
 
 <br align=center>
-<sub/>devil may cry   ㅤ           tezuka's works   ㅤ           dc comics</sub>
+<sub/>devil may cry   ㅤ              ㅤ           dc comics   ㅤ              ㅤ           tezuka's works</sub>
 <br align=center>
-<sub/>undertale   ㅤ           my hero academia   ㅤ           internet horror</sub>
+<sub/>my hero academia   ㅤ           undertale   ㅤ           internet horror</sub>
 
 <br align=center>
 ༺   ⟢   ༻
