@@ -1,7 +1,7 @@
 <p align=center>
      
 <br align=center>
- $${\color{cyan}       ﹒    @neromaycry  ﹕♰}$$
+ $${\color{#98A9E2}       ﹒    @neromaycry  ﹕♰}$$
 <br align=center>
 ﹟    artist  ·  gamer  ·  writer   ㅤ           ⸝⸝   ㅤ         ﹟    19yo   ㅤ         ⸝⸝   ㅤ         ﹟    he  ·  him 
 <br align=center>
