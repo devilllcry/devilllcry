@@ -1,28 +1,31 @@
-<p align="center">
-<img width="650" src="https://github.com/user-attachments/assets/2b8fd9a1-5978-4607-bd43-9777500e0787" alt="dmc nero">
+<p align=center>
+<img width="550" alt="image" src="https://github.com/user-attachments/assets/9882412b-68d8-4cfe-819e-0fcf7d4457bb" />
+<br align=center>
+     
+<br align=center>
+ $${\color{cyan}       ﹒    @neromaycry  ﹕♰}$$
+<br align=center>
+﹟    artist  ·  gamer  ·  writer   ㅤ           ⸝⸝   ㅤ         ﹟    19yo   ㅤ         ⸝⸝   ㅤ         ﹟    he  ·  him 
+<br align=center>
+<img width="350" alt="image" src="https://github.com/user-attachments/assets/3ba889e1-544e-439d-9d5d-c61cdf8e03fd" />
 
-</p>
-<p align="center">
-19 \ punkish scemo dude \ he/him <br/>
+<br align=center>
+⠀♰⠀   𓈒  ⠀only friend ppl i know⠀ ﾉ⠀ read rentry for more          ⸸
 
-</p>
-<p align="center">
-─ ⋆ ⋅ ♰ ⋅ ⋆ ─<br/>
-</p>
-<p align="center">
-usually on pony.town w/ friends<br/>
-i only friend ppl around my age<br/>  
-</p>
-<p align="center">
-─ ⋆ ⋅ ♰ ⋅ ⋆ ─<br/>
-</p>
-<p align="center">
-don't int if you're under 16 <br/>
-</p>
+<br align=center>
+༺   ⟢   ༻
 
-<p align="center">
-<img width="200" src="https://github.com/user-attachments/assets/6015226d-5485-4522-909d-ce4e0d7c6710" alt="dmc nero">
+<br align=center>
+<sub/>devil may cry   ㅤ           tezuka's works   ㅤ           dc comics</sub>
+<br align=center>
+<sub/>undertale   ㅤ           my hero academia   ㅤ           internet horror</sub>
 
-<p align="center">
-<img width="100" src="https://komarev.com/ghpvc/?username=poiznnn&color=blue" alt="view counter">
+<br align=center>
+༺   ⟢   ༻
 
+<br align=center>
+<sub/>◟♯ . / idm interactions, just don't be weird. i won't friend minors . 
+
+<br align=center>
+<img width="550" alt="image" src="https://github.com/user-attachments/assets/411a8c60-cc70-47c3-90ad-09d14ae6edf2" />
+                                                                        
