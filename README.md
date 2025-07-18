@@ -11,9 +11,6 @@
 ⠀♰⠀   𓈒  ⠀only friend ppl i know⠀ ﾉ⠀ read rentry for more          ⸸
 
 <br align=center>
-༺   ⟢   ༻
-
-<br align=center>
 <sub/>devil may cry   ㅤ           tezuka's works   ㅤ           dc comics</sub>
 <br align=center>
 <sub/>undertale   ㅤ           my hero academia   ㅤ           internet horror</sub>
@@ -22,5 +19,5 @@
 ༺   ⟢   ༻
 
 <br align=center>
-<sub/>◟♯ . / idm interactions, just don't be weird. i won't friend minors . 
+◟♯ . / idm interactions, just don't be weird. i won't friend minors . 
                                                                         
