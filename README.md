@@ -13,3 +13,5 @@
 
 <br align=center>
 ⠀⠀   𝅄  ⠀i'm cool w/ ya if you're not a weirdo
+<br align=center>
+<sub/> sign atabook  ㅤ              /   ㅤ              rentry.co
