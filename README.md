@@ -19,5 +19,5 @@
 
 <br align=center>
      <a href="https://maydevilscry.atabook.org">sign atabook</a>   ㅤ            ㅤ            ㅤ            ㅤ         
-     <a href="https://rentry.co/maydevilscry">rentry.co</a>
+     <a href="https://rentry.co/capsulez">rentry.co</a>
 </sub>
