@@ -1,7 +1,8 @@
 <p align=center>
      
 <br align=center>
-      $${\color{#bf030d}       ﹒    @neromaycry  ﹕⟢}$$
+      $${\color{#bf030d}       ﹒    @neromaycry  ﹕}$$<img width="13" height="13" alt="image" src="https://github.com/user-attachments/assets/d9e1f55f-4893-48d8-ac6d-99ef12aee375" />
+
 
 <br align=center>
      ﹟   nero   ㅤ         ⸝⸝   ㅤ         alternative guy   ㅤ         🦇 
