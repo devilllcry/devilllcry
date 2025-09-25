@@ -8,7 +8,7 @@
      ﹟   nero   ㅤ         ⸝⸝   ㅤ         alternative guy   ㅤ         🦇 
 
 <br align=center>
-    artist · writer   ㅤ              ㅤ             19yo   ㅤ            ㅤ             he  ﾉ  him 
+    artist · writer   ㅤ              ㅤ             20yo   ㅤ            ㅤ             he  ﾉ  him 
 
 <p align=center>
      <img width="150" alt="image" src="https://64.media.tumblr.com/c7ce4ea4e5ee84efbd8a6d3f3e92065b/bc63f9721ef15004-ab/s1280x1920/15ffd5fdbe71e2e0033851dab3325509c861bb07.png" />
