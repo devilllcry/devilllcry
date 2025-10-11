@@ -11,11 +11,11 @@
     artist · writer   ㅤ              ㅤ             20yo   ㅤ            ㅤ             he  ﾉ  him 
 
 <p align=center>
-     <img width="150" alt="image" src="https://64.media.tumblr.com/c7ce4ea4e5ee84efbd8a6d3f3e92065b/bc63f9721ef15004-ab/s1280x1920/15ffd5fdbe71e2e0033851dab3325509c861bb07.png" />
+     <img width="200" alt="image" src="https://64.media.tumblr.com/ef0272fc6eca2bfd0db4603bbca93dbb/e49dfe03f74b7f74-44/s1280x1920/1149c23c2ba87a081b13d4c754a98402946cdc6d.png" />
 
 <sub>
 <br align=center>
-— ⟢ㅤcapsules gang leaderㅤ.ㅤ//
+— ⟢ㅤthe first kiraㅤ.ㅤ//
 
 
 <br align=center>
