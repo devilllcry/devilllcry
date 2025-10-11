@@ -1,7 +1,7 @@
 <p align=center>
      
 <br align=center>
-      $${\color{#bf030d}       ﹒    @neromaycry  ﹕}$$<img width="13" height="13" alt="image" src="https://github.com/user-attachments/assets/d9e1f55f-4893-48d8-ac6d-99ef12aee375" />
+      $${\color{#bf030d} @neromaycry . }$$ <img width="12" height="12" alt="image" src="https://64.media.tumblr.com/0e6cdfd88cf98b72df19a484eefd653c/d30c800fd04f3eeb-7e/s75x75_c1/f4aec3ca17a86e79c44413a26b0ef470cd4fb232.gif" />
 
 
 <br align=center>
