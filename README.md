@@ -1,7 +1,7 @@
 <p align=center>
      
 <br align=center>
-      $${\color{#D8823C} @neromaycry . }$$ <img width="12" height="12" alt="image" src="https://64.media.tumblr.com/0e6cdfd88cf98b72df19a484eefd653c/d30c800fd04f3eeb-7e/s75x75_c1/f4aec3ca17a86e79c44413a26b0ef470cd4fb232.gif" />
+      @ $${\color{#D8823C} neromaycry}$$  .ㅤ//
 
 
 <br align=center>
