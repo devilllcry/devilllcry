@@ -1,7 +1,7 @@
 <p align=center>
      
 <br align=center>
-      @ $${\color{#D8823C} neromaycry}$$  .ㅤ//
+      @ $${\color{#933227} neromaycry}$$  .ㅤ//
 
 
 <br align=center>
@@ -11,11 +11,11 @@
     artist · writer   ㅤ              ㅤ             20yo   ㅤ            ㅤ             he  ﾉ  him 
 
 <p align=center>
-     <img width="150" alt="image" src="https://64.media.tumblr.com/a77ca9e1249b8495ebcce0fb84b68a8f/e49dfe03f74b7f74-28/s1280x1920/fdd1561cf5d1e716934be3722fbb0846ca6a0c3b.png" />
+     <img width="150" alt="image" src="https://64.media.tumblr.com/4e3e6babc136119723199133c11edfa4/eb52adfa0fc9c78e-67/s2048x3072/e787c746fe997d98014b2c5ca2c9a0550fac4509.png" />
 
 <sub>
 <br align=center>
-— ⟢ㅤthe first kiraㅤ.ㅤ//
+— ⟢ㅤthe proxyㅤ.ㅤ//
 
 
 <br align=center>
