@@ -1,7 +1,7 @@
 <p align=center>
      
 <br align=center>
-      @ $${\color{#933227} neromaycry}$$  .ㅤ//
+      @ $${\color{#CE8F34} neromaycry}$$  .ㅤ//
 
 
 <br align=center>
@@ -11,11 +11,11 @@
     artist · writer   ㅤ              ㅤ             20yo   ㅤ            ㅤ             he  ﾉ  him 
 
 <p align=center>
-     <img width="150" alt="image" src="https://64.media.tumblr.com/4e3e6babc136119723199133c11edfa4/eb52adfa0fc9c78e-67/s2048x3072/e787c746fe997d98014b2c5ca2c9a0550fac4509.png" />
+     <img width="150" alt="image" src="https://64.media.tumblr.com/16abe48d3ff1c808870b41fac1ada9d6/b8a96f318af2d9fc-24/s500x750/2aa2496d53eba85798397cf671fa4d55b281ea56.png" />
 
 <sub>
 <br align=center>
-— ⟢ㅤthe proxyㅤ.ㅤ//
+— ⟢ㅤthe nobodyㅤ.ㅤ//
 
 
 <br align=center>
