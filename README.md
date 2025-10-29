@@ -11,11 +11,11 @@
     artist · writer   ㅤ              ㅤ             20yo   ㅤ            ㅤ             he  ﾉ  him 
 
 <p align=center>
-     <img width="150" alt="image" src="https://64.media.tumblr.com/16abe48d3ff1c808870b41fac1ada9d6/b8a96f318af2d9fc-24/s500x750/2aa2496d53eba85798397cf671fa4d55b281ea56.png" />
+     <img width="150" alt="image" src="https://64.media.tumblr.com/d710e52df7e33cb3e522d5374abf5f9f/b8a96f318af2d9fc-c8/s500x750/cc6cd616d69a23d943c9733819ad52066dd2dc72.png" />
 
 <sub>
 <br align=center>
-— ⟢ㅤthe nobodyㅤ.ㅤ//
+— ⟢ㅤkeyblade wielderㅤ.ㅤ//
 
 
 <br align=center>
