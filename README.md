@@ -1,7 +1,7 @@
 <p align=center>
      
 <br align=center>
-      @ $${\color{#CE8F34} neromaycry}$$  .ㅤ//
+      @ $${\color{#4e9ad8} neromaycry}$$  .ㅤ//
 
 
 <br align=center>
