@@ -20,5 +20,5 @@
 
 <br align=center>
      <a href="https://lightendshere.atabook.org">sign atabook</a>   ㅤ            ㅤ            ㅤ            ㅤ         
-     <a href="https://rentry.co/yagamivr">rentry.co</a>
+     <a href="https://rentry.co/kingheartz">rentry.co</a>
 </sub>
